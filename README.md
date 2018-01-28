@@ -1,0 +1,2 @@
+# kuzmanova
+Za uprajneniq
